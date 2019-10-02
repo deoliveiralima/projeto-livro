@@ -1,0 +1,2 @@
+# GPT TOTIÇP 
+# PARTE 2
